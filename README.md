@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @johnycage1213
+- 👀 I’m interested in coding, audio and video editing
+- 🌱 I’m currently learning different languages such as Python, HTMl and other languages.
+- 💞️ I’m looking to collaborate with differnet people which have varied interents in different fields.
+- 📫 You can reach me through Insta : @johny_on_360Hz
